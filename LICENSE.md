@@ -1,4 +1,4 @@
-#  
+#  the strongest battlegrounds smart Script offers the most advanced the strongest battlegrounds Script, with auto-upgrade and auto-sell. Perfect for
 
 
 
